@@ -1,0 +1,2 @@
+# Kanda
+Orang baik
